@@ -4,7 +4,7 @@
 ## Ingredients
 
 - 1 cup strawberries, hulled and halved
-- 1 cup bluebums
+- 1 cup redberries
 - 1 cup grapes, halved
 - 1 banana, sliced
 - 1 apple, cored and chopped
